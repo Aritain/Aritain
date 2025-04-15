@@ -1,1 +1,1 @@
-✨[Homelab](https://excalidraw.com/#json=v9M0IBVwrs90bF3iPK9Ou,5VD-rB48eoXJHsEaps7Ysw) my beloved✨
+✨[Homelab](https://excalidraw.com/#json=10Nkg7ucdU0zXAlhKnIMp,jFPZvWjY3wVweyvQD7jruQ) my beloved✨
